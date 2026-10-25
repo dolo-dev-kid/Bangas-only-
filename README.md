@@ -1,2 +1,0 @@
-# Bangas-only-
-Recording studio 
